@@ -10,3 +10,10 @@ Main developer Kaung
 
 
 lil developer : switch and overpower
+
+
+
+NOTE: IF YOU WANT SUPPORT MESSAGE SWITCH
+
+
+LTC ADDY FOR DONATION :LebcDSXFnpL7J7dxZj3dgd28yGqno4AP5s
